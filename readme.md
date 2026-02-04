@@ -1,0 +1,1 @@
+too lazy to make a proper document for this for now... but will do it soon.. before i forget, hopefully :) i guess? uhh
